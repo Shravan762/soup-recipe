@@ -1,0 +1,1 @@
+water,capsicum,carrot,onion,garlic,red chilli sauce,soya sauce,corn flour.

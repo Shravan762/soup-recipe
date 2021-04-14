@@ -1,0 +1,1 @@
+stir vegetables and garlic,put red chilli and soya sauce,stir it for 2 min ,take water and add corn flour in in it and make medium thick paste,add water, put corn flour paste in it,cook it for 5 min.
